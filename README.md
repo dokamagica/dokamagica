@@ -4,5 +4,4 @@
 
 
 - ### interests ♡
-### blueycapsules
-fnaf, madoka magica, splatoon, ### homestuck
+blueycapsules, madoka magica, splatoon, homestuck, ddlc
