@@ -3,4 +3,6 @@
 - he/she , bisexual + transmasc , isfp  ♡
 
 
-- ### interests
+- ### interests ♡
+### blueycapsules
+fnaf, madoka magica, splatoon, ### homestuck
